@@ -1,1 +1,17 @@
-# Jana-team
+# Jana & team
+![1](https://github.com/jana143492/Jana-and-team/blob/main/Screenshot_2025-09-05-19-14-52-78_c37d74246d9c81aa0bb824b57eaf7062.jpg)
+![2](https://github.com/jana143492/Jana-and-team/blob/main/IMG-20250905-WA0059.jpg)
+![3](https://github.com/jana143492/Jana-and-team/blob/main/IMG-20250905-WA0060.jpg)
+![4](https://github.com/jana143492/Jana-and-team/blob/main/IMG-20250905-WA0061.jpg)
+![5](https://github.com/jana143492/Jana-and-team/blob/main/IMG-20250905-WA0062.jpg)
+![6](https://github.com/jana143492/Jana-and-team/blob/main/IMG-20250905-WA0063.jpg)
+![7](https://github.com/jana143492/Jana-and-team/blob/main/IMG-20250905-WA0064.jpg)
+![8](https://github.com/jana143492/Jana-and-team/blob/main/IMG-20250905-WA0065.jpg)
+![9](https://github.com/jana143492/Jana-and-team/blob/main/IMG-20250905-WA0066.jpg)
+![10](https://github.com/jana143492/Jana-and-team/blob/main/IMG-20250905-WA0067.jpg)
+![11](https://github.com/jana143492/Jana-and-team/blob/main/IMG-20250905-WA0068.jpg)
+![12](https://github.com/jana143492/Jana-and-team/blob/main/IMG-20250905-WA0069.jpg)
+<img width="1600" height="860" alt="Family Expenses _ ServiceNow - Google Chrome 9_3_2025 5_59_47 PM" src="https://github.com/user-attachments/assets/b3a1892e-327b-4c96-9dad-0f08efaf351a" />
+![output1 family table](https://github.com/user-attachments/assets/653065dc-6d78-4ab2-a2a0-bcb98c76b7fe)
+![OUTPUT](https://github.com/user-attachments/assets/3627ce4c-5456-4194-9e38-32b9097cc5e0)
+![output for daily expenses](https://github.com/user-attachments/assets/6f7ad3aa-2442-4780-bd62-2d35c532a74a)
